@@ -1,2 +1,1 @@
-# joes-chili
 JOES CHILI
